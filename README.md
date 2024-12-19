@@ -1,1 +1,1 @@
-Mina
+RIYAL
